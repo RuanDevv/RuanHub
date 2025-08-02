@@ -1,1 +1,1 @@
-hope u like this little script (universal)
+hope u like this little script (for all games)
